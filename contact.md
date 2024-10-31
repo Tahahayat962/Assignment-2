@@ -1,1 +1,1 @@
-Contact information here
+Haya2002@mylaurier.ca
